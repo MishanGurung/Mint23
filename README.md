@@ -6,7 +6,7 @@
  The Manager
  Rupendehi, Butwal
                         Subject: Application for Charted Accountant
-
+Respected Sir/Madam
             I am glad that I am able to reach out to you. I saw the job application post in the recent Kathmandu post in news
   I am looking for a job and this job seems perfect for someone like me.i have provided some info of me.
 
